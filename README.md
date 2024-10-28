@@ -30,12 +30,7 @@ B L U I S S E R R A
  <img width="200" src="https://64.media.tumblr.com/17582f0284ae365f20f2694eb3d56282/f6beca363f903096-ef/s2048x3072/ed3569c2e195e212a2d3000e2f02c70eca25d708.pnj"
  </p>
 
-  <p align="center"
-   <br><sub> <a href="https://www.patreon.com/seraphimblade/about"> Pt Info  </a></sub>
-</p>
-
-
-
+  
 <p align="center">
 <img width="80" src="https://64.media.tumblr.com/24dfdb46187161691d44e7819e740221/3671a26edef10d5d-bc/s100x200/2e00a49b106c65faa48361518ef6c03047ddc1ef.webp"
 </p>
