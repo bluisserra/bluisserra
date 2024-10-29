@@ -50,7 +50,7 @@ B L U I S S E R R A
 </p>
 <img width="80" src="https://64.media.tumblr.com/f3e14a44eb83d0030a9c7483901797a2/78febdebb9940f83-f6/s1280x1920/85971438d04429334ec1c9f25f3d663dd87c1af8.gifv"
 </p>
- <img width="80" src="https://64.media.tumblr.com/96e69a036b4c2e84a464fe9ad41ae495/6f072ea04e7b6c72-db/s100x200/2fc6d547fa9d516036636e8c3a2b57b88f892f0e.gifv"
+ <img width="80" src="https://64.media.tumblr.com/031fd873235e1d57df8791c82444e5b8/593ab4907096d66d-bb/s100x200/c94b2ff7814866ab043bf1d4b2d5fa204be444eb.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/760e036ecebe486b7a0bee9560b8bc17/7c3dd077ed76e2f9-77/s100x200/cee116d8432d72658408f9a6f7c00d33549498cc.gifv"
 </p>
